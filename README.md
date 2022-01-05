@@ -1,2 +1,3 @@
 # margareth
-i like to join a bussiness
+ini cara pakenya gua kaga ngerti
+ini apaan aowakwokaowk
